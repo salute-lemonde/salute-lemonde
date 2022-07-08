@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Foluso. It's pronounced /Fo-lu-SHaw/
-- 👀 I’m interested in Embedded Systems, all things Hardware & Software, Programmming Hardware
+- 👀 I’m interested in Embedded Systems, all things Hardware & Software, Programmming Hardware. I am also looking for a full time position so contact me about ANY opportunites please! 
 - 🌱 I’m currently learning more things about technology
 - 💞️ I’m looking to collaborate on any & every software/hardware related project
 - 📫 How to reach me - foluwaso_a@yahoo.com
